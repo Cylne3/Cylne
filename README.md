@@ -4,6 +4,5 @@
 
 !! DO NOT !!
 --Copy my skins 
-----------------------------------------------
-C+H+K✔️ Usually Afk but feel free to whisper <3
-----------------------------------------------
+-----------
+Happily taken and very much in love with my wife
