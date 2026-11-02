@@ -1,6 +1,4 @@
-# Cylne
-
-⋆✴︎˚｡⋆ I am a minor ⋆✴︎˚｡⋆ 
+# Cylne 
 
 !! DO NOT !!
 --Copy my skins 
